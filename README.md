@@ -2,7 +2,7 @@
 Pagina de practica laboral
 
 
-Estos es una pagina de practica laboral
+Esto es una pagina de practica laboral B)
 
 
 :lol:
